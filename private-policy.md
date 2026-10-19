@@ -74,4 +74,4 @@ If this policy changes, the updated version will be posted at this page with a n
 
 Contact
 
-Questions about this policy or your privacy can be sent to: [your contact email]
+Questions about this policy or your privacy can be sent to: jumi2082@colorado.edu

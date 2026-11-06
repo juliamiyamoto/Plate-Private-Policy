@@ -119,4 +119,4 @@ Copyright Concerns
 
 If you believe content shown in Plate infringes your copyright, please contact us with a description of the content and where it appears. Content that comes from Google, such as photos and reviews, can also be reported directly to Google through Google Maps.
 
-Contact: [your contact email]
+Contact: jumi2082@colorad.edu
